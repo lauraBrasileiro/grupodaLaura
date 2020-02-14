@@ -1,0 +1,1 @@
+# Akali , lux , leblanc , pyle , lissandra, taliah , rammus , mordekaiser
